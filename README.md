@@ -1,1 +1,1 @@
-# GM.github.io
+# GMstudentHoGent.github.io
